@@ -27,6 +27,3 @@
 
 ### Student Researcher
 [Praveen Adithya B] - RA2311027020010
-
----
-🚀 This represents genuine breakthrough research in agricultural AI!
